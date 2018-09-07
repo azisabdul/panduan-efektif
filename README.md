@@ -1,0 +1,2 @@
+# panduan-efektif
+Azis sayang
